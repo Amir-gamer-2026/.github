@@ -27,8 +27,10 @@ We're building a gaming & development community focused on creating cool project
 [Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
 
 ### Reddit
-[Visit our Reddit]
-(https://www.reddit.com/user/Main_Oil460/)
+[Visit our Reddit](https://www.reddit.com/user/Main_Oil460/)
+
+### mastodon
+[Visit my mastodon](https://mastodon.social/@AkvuevK43)
 
 ## 🛠️ What We Do
 
