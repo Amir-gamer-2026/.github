@@ -26,7 +26,9 @@ We're building a gaming & development community focused on creating cool project
 ### 🌐 Website
 [Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
 
----
+### Reddit
+[Visit our Reddit]
+(https://www.reddit.com/user/Main_Oil460/)
 
 ## 🛠️ What We Do
 
