@@ -13,6 +13,12 @@ Welcome to **Amir Gamer 2026** 🎮
 
 We're building a gaming & development community focused on creating cool projects, learning new things, and having fun! 🚀
 
+### Support Email
+amirgamermiri651@gmail.com
+
+### Admin Email
+rrf.miri@gmail.com
+
 ---
 
 ## 🔗 Links
