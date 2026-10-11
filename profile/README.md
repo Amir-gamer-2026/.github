@@ -15,12 +15,12 @@ We're building a gaming & development community focused on creating cool project
 
 ### 📨 Support Email
 amirgamermiri651@gmail.com
-
+---
 ### 📨 Admin Email
 rrf.miri@gmail.com
-
+---
 ### 📨 Additional Support Email
-rf.miri@gmac.com
+rf.miri@gmail.com
 ---
 
 ## 🔗 Links
