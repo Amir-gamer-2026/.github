@@ -17,14 +17,17 @@ We're building a gaming & development community focused on creating cool project
 
 ## 🔗 Links
 
+### 🌐 Website
+[Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
+
+### 💼 linkedin 
+[join our Linkedin](https://www.linkedin.com/in/amiryan-trans-company-35957b442?trk=contact-info) 
+
 ### Discord
-[Join our Discord Server](https://discord.gg/3qpTs9gYT)
+[Join our Discord Server](hhttpsscord.gg/3qlinkedinnnn)
 
 ### YouTube
 [My YouTube Channel](https://youtube.com/@king_single_gojo)
-
-### 🌐 Website
-[Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
 
 ### Reddit
 [Visit our Reddit](https://www.reddit.com/user/Main_Oil460/)
